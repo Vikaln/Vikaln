@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Vikal
+- 👀 I’m interested in fivem server
+- 🌱 I’m currently learning how too Code fivem Scripts
+- 📫 How to reach me Discord: vikal#3377
